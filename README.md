@@ -1,1 +1,0 @@
-# spvreddy.github.io
